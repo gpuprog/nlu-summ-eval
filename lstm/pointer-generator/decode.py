@@ -22,10 +22,11 @@ import tensorflow as tf
 import beam_search
 import data
 import json
-import pyrouge
+#import pyrouge
 import util
 import logging
 import numpy as np
+import shutil
 
 FLAGS = tf.app.flags.FLAGS
 
@@ -58,7 +59,7 @@ class BeamSearchDecoder(object):
       ckpt_name = "ckpt-" + ckpt_path.split('-')[-1] # this is something of the form "ckpt-123456"
       self._decode_dir = os.path.join(FLAGS.log_root, get_decode_dir_name(ckpt_name))
       if os.path.exists(self._decode_dir):
-        raise Exception("single_pass decode directory %s should not already exist" % self._decode_dir)
+        shutil.rmtree(self._decode_dir, ignore_errors=True)
 
     else: # Generic decode dir name
       self._decode_dir = os.path.join(FLAGS.log_root, "decode")
@@ -83,9 +84,9 @@ class BeamSearchDecoder(object):
       if batch is None: # finished decoding dataset in single_pass mode
         assert FLAGS.single_pass, "Dataset exhausted, but we are not in single_pass mode"
         tf.logging.info("Decoder has finished reading dataset for single_pass.")
-        tf.logging.info("Output has been saved in %s and %s. Now starting ROUGE eval...", self._rouge_ref_dir, self._rouge_dec_dir)
-        results_dict = rouge_eval(self._rouge_ref_dir, self._rouge_dec_dir)
-        rouge_log(results_dict, self._decode_dir)
+        tf.logging.info("Output has been saved in %s and %s. Run your eval with these files", self._rouge_ref_dir, self._rouge_dec_dir)
+        #results_dict = rouge_eval(self._rouge_ref_dir, self._rouge_dec_dir)
+        #rouge_log(results_dict, self._decode_dir)
         return
 
       original_article = batch.original_articles[0]  # string
@@ -152,10 +153,10 @@ class BeamSearchDecoder(object):
     ref_file = os.path.join(self._rouge_ref_dir, "%06d_reference.txt" % ex_index)
     decoded_file = os.path.join(self._rouge_dec_dir, "%06d_decoded.txt" % ex_index)
 
-    with open(ref_file, "w") as f:
+    with open(ref_file, "w", encoding="utf-8") as f:
       for idx,sent in enumerate(reference_sents):
         f.write(sent) if idx==len(reference_sents)-1 else f.write(sent+"\n")
-    with open(decoded_file, "w") as f:
+    with open(decoded_file, "w", encoding="utf-8") as f:
       for idx,sent in enumerate(decoded_sents):
         f.write(sent) if idx==len(decoded_sents)-1 else f.write(sent+"\n")
 
@@ -237,7 +238,7 @@ def rouge_log(results_dict, dir_to_write):
   tf.logging.info(log_str) # log to screen
   results_file = os.path.join(dir_to_write, "ROUGE_results.txt")
   tf.logging.info("Writing final ROUGE results to %s...", results_file)
-  with open(results_file, "w") as f:
+  with open(results_file, "w", encoding="utf-8") as f:
     f.write(log_str)
 
 def get_decode_dir_name(ckpt_name):
