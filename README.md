@@ -29,5 +29,6 @@ It uses three datasets:
 2. [Amazon Food reviews](https://www.kaggle.com/datasets/snap/amazon-fine-food-reviews) - "Amazon" - download and unpack archive.zip direct into "./data-amazon" folder
 3. [WikiHow](https://github.com/mahnazkoupaee/WikiHow-Dataset) - "WikiHow" - download the [wikihowSep.csv](https://ucsb.box.com/s/ap23l8gafpezf4tq3wapr6u8241zz358) into "./data-wikihow" folder
 
-### 4. Then you can open "lstm", "roberta" and "gpt3" folders with Visual Studio Code (Python extension v2020.12.424452561 recommended - a later extensions can be working incorrect with Python 3.6).
+### 4. Evaluate subprojects independently
+Then you can open "lstm", "roberta" and "gpt3" folders with Visual Studio Code (Python extension v2020.12.424452561 recommended - a later extensions can be working incorrect with Python 3.6).
 Please read README.md from each of that folder.
