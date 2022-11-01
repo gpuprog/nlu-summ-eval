@@ -14,12 +14,12 @@ def cnnTestset(big=False):
 
     # Delete for full test
     if not big:
-        test_data = test_data.select(1000)
+        test_data = test_data.select(range(1000))
 
     return Testset(test_data, 'article', 'highlights')
 
 def amazonTestset(big=False):
-    df = pd.read_csv("../data-amazon/Reviews.csv")
+    df = pd.read_csv("../data-amazon/Reviews.csv", quotechar='"', quoting=1)
     df.drop(columns=['Id', 'ProductId', 'UserId', 'ProfileName', 'HelpfulnessNumerator','HelpfulnessDenominator', 'Score', 'Time'], axis=1, inplace=True)
     df = df.dropna()
     
@@ -34,7 +34,7 @@ def amazonTestset(big=False):
     return Testset(test_data, 'Text', 'Summary')
     
 def wikihowTestset(big=False):
-    df = pd.read_csv("../data-wikihow/wikihowSep.csv", on_bad_lines='warn')
+    df = pd.read_csv("../data-wikihow/wikihowSep.csv", on_bad_lines='warn', quotechar='"', quoting=1)
     df.drop(columns=['overview', 'sectionLabel', 'title'], axis=1, inplace=True)
     df = df.dropna()
 
