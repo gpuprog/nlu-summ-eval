@@ -1,4 +1,5 @@
 The evaluation of different Text Summarization algorithms.
+
 P.S. You need a GPU CUDA and a minimum 16Gb of GPU memory.
 
 ## How to work
@@ -7,18 +8,18 @@ P.S. You need a GPU CUDA and a minimum 16Gb of GPU memory.
 At first step please create environments.
 
 The "tf1" witch packages:
-python=3.6.13
-tensorflow=1.2.1
-pandas=1.1.5
+- python=3.6.13
+- tensorflow=1.2.1
+- pandas=1.1.5
 
 The "nlu" with packages:
-python=3.9.12
-datasets==2.6.1
-rouge-score==0.1.2
-transformers==4.22.2
-openai
+- python=3.9.12
+- datasets==2.6.1
+- rouge-score==0.1.2
+- transformers==4.22.2
+- openai
 
-P.S. Also you shopuld install ipykernel in both environments (it will be requested by Visual Studio Code)
+P.S. Also you should install ipykernel in both environments (it will be requested by Visual Studio Code)
 
 ### 2. Setup your OpenAI API key.
 Create a file openai-api-key.txt (under the "root" project folder) and push your key into this file.
@@ -31,4 +32,5 @@ It uses three datasets:
 
 ### 4. Evaluate subprojects independently
 Then you can open "lstm", "roberta" and "gpt3" folders with Visual Studio Code (Python extension v2020.12.424452561 recommended - a later extensions can be working incorrect with Python 3.6).
+
 Please read README.md from each of that folder.
