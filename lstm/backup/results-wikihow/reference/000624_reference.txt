@@ -1,0 +1,1 @@
+make the structure stable by adding a base and support beams as you see fit .

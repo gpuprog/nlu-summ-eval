@@ -1,0 +1,5 @@
+I bought a six pack of this cereal when I saw it on sale because I eat a lot of cereal and therefore get sick of the various brands and makes pretty quickly . I had never tried this but had seen it in the store -LRB- usually for double the price of Amazon -RRB- so I thought I would give it a try . <br /> I have to say that I was pleasantly surprised . If you like maple flavor , you will probably enjoy this . It has pecan chunks , which are n't super healthy but do taste good . It also has oatmeal clusters that are somehow very light and add nicely to the flavor of the flakes which taste good as well . There is a decent amount of flax seed in the mix as well , which I am trying to eat more of . Overall it is sweet enough that my 4-year-old enjoys it but probably healthier than most of the sugar cereals out there . I bought three more six packs a week later and have yet to get sick of it . I will probably order this again .
+
+@highlight
+
+Light and Healthy

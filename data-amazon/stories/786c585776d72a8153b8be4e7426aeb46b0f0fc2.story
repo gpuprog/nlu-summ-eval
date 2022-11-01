@@ -1,0 +1,5 @@
+I just got off the phone with a Zoe representative and she was more than helpful explaining how to read the expiration date on the bottom of the can....Here goes  The "L" stands for lot and the next 4 digits are the specific factory location in Spain (it helps them not us) the next two digits are the year it was made and the last three digits (or two) are the julian date...(for example  May 1 would be "121" or October 13 would be "286" Here is the link to an online julian calander if you need it....[...]  So a code on the bottom of L  123411286  would be canned on October 13, 2011.....Hope this clears up any confusion....Oh by the way I loooove the oil for the price...are there better oils out there? Absolutely  but bang for the buck I put my money on Zoe.....
+
+@highlight
+
+Expiration Dates Explained

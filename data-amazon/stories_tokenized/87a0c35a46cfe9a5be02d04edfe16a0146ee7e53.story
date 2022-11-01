@@ -1,0 +1,5 @@
+I love Traditional Medicinals PMS Tea and have used it for about 10 years now . I used to get it at the natural foods / healthy food sections at the grocery stores and sometimes in the tea sections at some stores , but lately it was getting more difficult to find . It is a better deal to buy it in bulk on-line , plus having it shipped to your door is wonderful ... . I do n't have to hunt for it in the stores and then be dissappointed if they do not have any in stock . I usually use the PMS tea about a week or week and a half before my period starts . It helps me mostly with my irritability and mood swings ! Whenever I am getting too stressed about the simplest things , this tea helps me to calm down . I do n't normally have cramps , so I ca n't say how it would help with cramping . It helps with bloating and that tired feeling that comes before the cycle begins . Overall , it helps me get through the tough time before my period starts . Thanks for having such a wonderful product !
+
+@highlight
+
+Love the PMS tea !

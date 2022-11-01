@@ -1,0 +1,3 @@
+this is where all of your in-app notifications will appear -lrb- e.g. , photo likes and comments , friend requests , etc. .
+it 's two icons over from the magnifying glass icon .
+this is where all of your in-app notifications will appear -lrb- e.g. , photo likes and comments , friend requests , etc. .

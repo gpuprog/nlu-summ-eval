@@ -1,0 +1,5 @@
+I *really* wanted to like this coffee, because it sounded great on paper, and had a slew of good reviews. However, my taste buds say different: this coffee's burnt. It's dark, oily, and bitter. On top of that, it also tastes extremely weak, no matter how high of a coffee to water ratio is used. You would hands down get a better cup using Starbucks from the grocery store (a better value for your money). The only redeeming quality I can see so far is the product packaging (+1 star), which is very attractive and lively. Verdict on Magnum Jamaican Blue Mountain Blend: ugh, don't bother. This stuff tastes like crap.<br /><br />My usual brews: <a href="http://www.amazon.com/gp/product/B001EO5PB0">Jeremiah's Pick Coffee Colombia Supremo Decaf Whole Bean Coffee, 10-Ounce Bags (Pack of 3)</a> or Peet's
+
+@highlight
+
+Burnt bitter weak coffee

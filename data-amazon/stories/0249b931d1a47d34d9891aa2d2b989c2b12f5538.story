@@ -1,0 +1,5 @@
+The formula is wonderful - I haven't had a single problem since I started using it when my baby was 3 months old.  He's now 9mths and is still doing great on this stuff...I'm just glad he's almost near the end of his formula days since it's the price (specifically the Amazon price) I'm not happy with.<br /><br />I've been buying this formula from Amazon since March 2012 - and at that time it was the best price out there - $36.70 for a 6pk ($6.12/bottle).<br /><br />Then by August the price had jumped to $38.16 ($6.36/bottle) - but still the cheapest price out there, so I wasn't complaining.<br /><br />Now - October - the price has jumped yet again to $41.94 ($6.99/bottle)  - making it more expensive than Walmart or Target.<br /><br />The seller has always been Amazon (not another seller through Amazon) - so it's not a change in seller causing the price changes.  I just hope the price raises were out of necessity...and I guess I'll have to take my $180 a month elsewhere from now on.
+
+@highlight
+
+Formula is wonderful...Amazon Price RAISES - Not so much...

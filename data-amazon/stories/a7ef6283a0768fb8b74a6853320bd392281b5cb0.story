@@ -1,0 +1,5 @@
+I love sesame in general. It makes foods more satisfying. There are two brands of blue corn sesame chips I know of; this one and one by Kettle. I think I might prefer the Kettle brand a little over this one since they use sprouted corn. Somehow that improves the flavor a little. These are still a 5 star product though. Sadly, I just searched for the Kettle chips and found they have been discontinued, so not only are these a great choice for sesame blue goodness they are your only choice!<br /><br />Of course chips like these are pretty high in fat, so it is not a good idea to eat them too often. They are quite addictive as well. For a little addition to a lunchtime meal you will not be disappointed. I hope you like them as much as I do.<br /><br />-Dan
+
+@highlight
+
+I love the sesame in these chips, you will too!

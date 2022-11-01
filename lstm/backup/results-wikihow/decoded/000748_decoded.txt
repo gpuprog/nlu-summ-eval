@@ -1,0 +1,3 @@
+new segment will appear beneath the original video file .
+note that any dvd converter can run into problems when trying to join trimmed clips .
+for best results , output the trimmed files first into new video files , and then add the new output to your project .

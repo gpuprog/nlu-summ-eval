@@ -1,0 +1,5 @@
+I got this for $ 35 for a pack of 24 boxes . Each box contains 2 pouches and each pouch makes two large -LRB- 2 cup -RRB- serving of soup . So basically , if you half the pouches , you are paying for 96 -LRB- 24 x 2 x 2 -RRB- servings , which is not a bad deal at all . Compared to the Sun-Bird brand egg drop soup mix , it is a little harder to mix -LRB- harder to get the clumps out -RRB- , and a little less flavorful in my opinion , but you get more than twice for the price -LRB- the cheapest I found Sun-Bird is 48 servings for $ 45 -RRB- . To help with the flavor , I stir in a little soy sauce , and chives . It tastes good . <br /> <br /> The instructions on the box are odd . It says to add noodles -LRB- I 've never heard of adding noodles to egg drop soup -RRB- , and then continue to simmer it after adding the egg , but you should n't need to do any more than just bring it to a boil , stir in the egg , turn off the heat and let it cool . The egg is done enough by then .
+
+@highlight
+
+Good for the price

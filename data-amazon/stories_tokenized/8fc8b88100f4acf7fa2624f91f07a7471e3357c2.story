@@ -1,0 +1,5 @@
+No kidding . My wife has been asking me for 40 years why french fried potatoes and other vegetables never turned out right . <br /> <br /> This Tophe Rice Bran Oil is the answer ! French fries that are brown and crispy on the outside and soft and perfect on the inside . And no greasy mess . No sagging . And the paper towel you use to absorb excess ends up perfectly clean and dry . <br /> <br /> This oil is a chef 's dream . I only wish I had discovered it 40 years ago ! If you appreciate vegetables and meats that are perfectly fried - look no further . <br /> <br /> Do n't take my word for it . You have to try it just once - and you will never settle for anything less . <br /> <br /> Outstanding oil in every respect and super healthy to boot !
+
+@highlight
+
+It only took me 40 years to discover this fantastic oil !

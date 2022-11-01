@@ -1,0 +1,1 @@
+type `` restore point '' and select `` create a restore point '' from the list .

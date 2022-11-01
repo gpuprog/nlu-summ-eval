@@ -1,0 +1,2 @@
+if you 're not sure which version to select , download mysql installer for windows .
+if you 're not sure which version that includes a windows installer , save the file on your windows desktop .

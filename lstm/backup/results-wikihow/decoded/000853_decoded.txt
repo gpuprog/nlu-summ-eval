@@ -1,0 +1,3 @@
+your game is lost once you exit the app .
+you can also tap on `` forfeit '' anytime to exit the game without saving .
+do n't forget to tap on save ; otherwise , your game is lost .

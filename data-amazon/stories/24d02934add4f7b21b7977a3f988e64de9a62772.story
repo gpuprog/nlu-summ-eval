@@ -1,0 +1,5 @@
+When I found out about this product from Jorge Cruise's site, I couldn't wait to try it.  It took many visits to specialty stores (names obtained from the Zevia website) before I finally found one that had just two cans of the Ginger Root Beer in stock.  I bought both cans, even though I never really drink root beer.  After tasting Zevia Ginger Root Beer, I love root beer now!  This is my favorite flavor, even over Cola and Orange (haven't had the Twist, yet).<br /><br />Everything in the Ginger Root Beer is natural, and there's no caffeine (like the Cola, even though it's supposed to be natural caffeine). The cola is  my next favorite that I have occasionally.  I did not care much for the orange, it tasted artificial and not very orangy-tasting. I highly recommend the root beer flavor, though.
+
+@highlight
+
+Natural Ginger Root Beer with stevia tastes great

@@ -1,0 +1,5 @@
+Shopping in warehouse stores lends itself to buying a lot of impulse items . Well here 's one quite good such item . I was going down the snack isles of my local Costco and found a couple huge displays of roasted peanuts , one salted in the shell and one not . Hmmmmm . A five-pound bag of peanuts ? That 's much more than I need ! But I love salted-in-the-shell peanuts . But , how will I ever finish five pounds of them ? Oh , well , we 'll figure it out . Into the cart they went . <br /> <br /> The peanuts are quite good . Excellent , in fact . The roast is just right . They are salted , but very lightly . I actually prefer a little saltier , but I know this lighter flavoring is better for my health . In fact , the sodium to potassium ratio is close to equal , a rare instance in a salted snack product . I 'd say , the peanuts are just excellent , much better than the brands I 'm used to buying in smaller packets . Plus , they 're real nice and fresh . The trick might be keeping them fresh as I work my way down to the bottom of this huge bag . But , no mistaking , they 're excellent peanuts . <br /> <br /> Gary Peterson
+
+@highlight
+
+Excellent Peanuts !

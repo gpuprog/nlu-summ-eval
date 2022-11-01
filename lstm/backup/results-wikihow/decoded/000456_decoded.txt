@@ -1,0 +1,3 @@
+surveillance technology.you can install encryption software within your email service .
+once encrypted , the information is scrambled and can not be read unless the person has the right key to decrypt it .
+once pgp is running , no one can read emails you send without the proper key to decrypt them .

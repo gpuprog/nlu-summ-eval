@@ -1,0 +1,3 @@
+if the answer is less than 10 , write the answer on the lower triangle and write 0 on the upper triangle .
+if the answer is more than 10 , write the first digit of the answer on the upper triangle of the cell , and the second digit on the lower triangle .
+following the example , you multiply the digits of the multiplicand and the multiplier .

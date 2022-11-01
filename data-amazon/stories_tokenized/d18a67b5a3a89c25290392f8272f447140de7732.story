@@ -1,0 +1,5 @@
+Like others have mentioned , yogurt made with this is much tastier than store bought . <br /> <br /> Be sure to use the right temperatures - heat to 180 degrees , the cool to 113 degrees <br /> to add the starter . The high temperature changes the protein in the milk so the yogurt <br /> sets better , just like when making custard from scratch . <br /> <br /> I use a yogoutmet model T yogurt maker , which is cool . and run it for 10 hours . This <br /> converts most of the sugar , making the resulting yogurt nice and sour , the way I like it . <br /> At this point you can use it in place of sour cream , and it will also stay intact better at <br /> higher temperatures . If you thicken it bit more , by removing some of the whey , you <br /> will have the thickness of Greek-style yogurt . You can also thicken it more to use in <br /> place of cream cheese .
+
+@highlight
+
+Great stuff

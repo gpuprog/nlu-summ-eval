@@ -1,0 +1,5 @@
+all reviews which compared illy cofee to lavazza were much in favor of illy . I tried both coffee made in Bialetti Moka Express Stovetop Espresso Maker . <br /> My opinion - they definetely have different taste but no difference in quality . Lavazza tastes stronger , while Illy tastes softer . Thus , I can not justify such significant difference in price - $ 13 per 8oz . for Illy and $ 5 per 8oz . for Lavazza . I personally liked Lavazza taste better . <br /> <br /> Illy makes grind especially for Stovetop Moka Maker which I used . Apparently it is designed to be completely filtered out - so there is no tiny bits of grounded coffee in the final product and no powder left in cup when it is empty . For some reason I do like these little pieces in the mouth -LRB- probably it is not good for teeth -RRB- . Lavazza makes just one standard ground coffee which in finer than Illy 's Moka version .
+
+@highlight
+
+i was not impressed

@@ -1,0 +1,2 @@
+this column will record the value of every other item on the sheet .
+this is an optional column that allows you to track whether or not the bills due at the dates in the c column have been paid .

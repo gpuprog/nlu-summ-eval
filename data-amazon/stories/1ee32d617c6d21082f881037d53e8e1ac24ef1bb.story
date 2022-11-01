@@ -1,0 +1,5 @@
+I found this product in a local Walmart, after trying vainly to find bread that i liked that is gluten free.  (Stay away from the Ener-G brand, in my opinion)<br /><br />I have been gluten free for 3 weeks now, and seriously craving bread products.  I made some pancakes this morning from this product, and wow!!  very tasty, very light, I needed to thin them a bit more to have them spread correctly, but, this was the first real carb product that was "bread like" that I have eaten in 3 weeks.  Needless to say, I ate too many, and now have a carb headache!  :)<br /><br />Seriously though, this product, used in moderation, may help you not miss your gluten products quite as much.  I look forward to making bisquits and some of the other recipes on the box.<br />Way to go on this product, -it strikes a home run in the gluten free market.
+
+@highlight
+
+Absolutely a lifesaver!!

@@ -1,0 +1,2 @@
+windows 8 - press ? win + x and select device manager lists all of the hardware that your computer is comprised of , and will let you see if bluetooth hardware is installed .
+accessing the device manager quickly is a little different for each version of windows .

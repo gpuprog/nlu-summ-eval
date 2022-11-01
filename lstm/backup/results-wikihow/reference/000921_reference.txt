@@ -1,0 +1,1 @@
+enter to cell b13 , tfr to this , then enter to cell b14 , column first ! , and then enter to cell b15 , yesterday .

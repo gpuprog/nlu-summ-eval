@@ -1,0 +1,5 @@
+I have three dog friends . Maggie , my 14 year old Aussie had some problems -LRB- $ 2,000.00 -RRB- worth of problems and she was so sick I thought of putting her down . As it turns out there were several issues that the Colo Springs Emergi Vet and Dr Jaime Gaynor fixed and one of them one food allergies that had caused severe problems . After trying several foods and making all my own dog food we tried Paul Newman and all was well , Maggie and her friends thrived . Well Our grocery stores did not always have it in stock and it ranged from 13 to 17 dollars for 7 pounds , also at Wal Mart is was past its expiration date and rancid . Thank you Amazon , it comes fresh!It is so reasonably priced and it gets delivered on schedule which I can change at anytime as far as amount and delivery date . I can not thank you enough for carrying this food nor recommend it enough for other dogs.Our lives are busy , I am a nurse and anything that is dependable , easy , reasonable , comes with excellent customer service , and my friends Maggie , Lucy , and Honey stay healthy on it a gift for every day , Thank you
+
+@highlight
+
+they are not sick anymore

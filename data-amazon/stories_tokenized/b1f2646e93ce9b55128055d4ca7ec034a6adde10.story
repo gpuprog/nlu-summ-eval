@@ -1,0 +1,5 @@
+I tried this after trying -LRB- and loving -RRB- the Tea 's Etc Organic Coconut-Almond add-on . This is a very good tea . It 's a little mild for my tastes , as I was expecting the tea and ginger to have bolder flavors . -LRB- I 'm not astute enough about tea to know if this is a blend issue or a freshness issue . Given the strong aroma I suspect the former . -RRB- That said , I really do enjoy it and just find myself using a pinch more and letting it seep longer to achieved the desired outcome . The aroma is wonderful and I think this is a perfect afternoon tea . -LRB- Who does n't feel more energized after getting a whiff of citrus ?! -RRB- . The fact that the flavor is n't overpowering also makes it a good choice for folks who want to ease into drinking green tea . I 'll order this again , but it will be awhile . These `` small '' 3-oz packages last an impressively long time even with daily consumption ! <br /> <br /> Update 9 / / 11/12 : I paid $ 8.62 for this item . I see it 's now selling for less than $ 2 ...
+
+@highlight
+
+Excellent !

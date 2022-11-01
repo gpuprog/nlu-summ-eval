@@ -1,0 +1,4 @@
+when the plane yaws , it turns to one side of the plane .
+grasp the wing opposite the direction you want the plane to go .
+tilt the end of the opposite wing downwards and away from center.for example , if your plane goes left , tilt the left wing upwards and to the right .
+tilt the right wing downwards and to the right .

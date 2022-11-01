@@ -1,0 +1,5 @@
+PROS: This dish is delicious. The flavor is not at all hot-spicy, but there is plenty of body to it. The cheese is firm.  It was really easy to prepare, too. I just tossed the bag into a pot of boiling water for 4 minutes, as recommended by the preparation instructions.<br /><br />CONS: The texture is lacking. It's almost as if the spinach was pureed; this makes it a little too soup-like. Also, the sodium content seems a little too high. The nutrition info on the package says there is 800 mg/serving (33% daily value) and about 2.5 servings/package; so if you eat this all at once like me, you'll be ingesting about 2000mg of sodium (about 82.5% of the daily value).<br /><br />But for the texture, I would be happy to find this on my plate in a restaurant.
+
+@highlight
+
+Delicious, but a little soupy

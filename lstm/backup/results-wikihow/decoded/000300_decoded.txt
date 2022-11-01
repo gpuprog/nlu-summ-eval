@@ -1,0 +1,3 @@
+if you 're using a laptop , tap the trackpad with two fingers to invoke the drop-down menu .
+if the volume icon does n't appear in the task bar : right-click the task bar , click select which icons appear in the taskbar .
+slide the switch next to the `` on '' position .

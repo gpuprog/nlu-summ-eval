@@ -1,0 +1,5 @@
+After my first few gulps I thought it tasted decent . However , after half a can it started to take on a strange and somewhat unpleasant taste . I still could n't tell you what the flavor was . Some sort of `` fruit punch '' . It does do what it says it is supposed to do which is give you an energy pick up . I have tried a bunch of different energy drinks from various companies and they are all pretty similar . Lots of caffeine , Vit B , guarana , and similar ingredients . There effectiveness depends on individuals ' resistance to these stimulants . I drink several cups of coffee and/or energy drinks a day so the effects are there but minimal compared to my wife who is smaller and will only have an occasional cup of tea or coffee . She drinks one of these and is bouncing off the walls . For me it comes down to taste and I am not a fan of this flavor . I would also choose a no - or low-calories version .
+
+@highlight
+
+What Flavor is this supposed to be ?

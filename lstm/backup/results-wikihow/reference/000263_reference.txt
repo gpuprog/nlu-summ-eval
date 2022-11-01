@@ -1,0 +1,1 @@
+wait for the usb adapter to scan available wireless networks in your area and come up with a wireless network ssid list .

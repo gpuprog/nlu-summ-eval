@@ -1,0 +1,5 @@
+Some of the flavors we have tried:<br />Diet Cola<br />I do not like diet cola. I don't like diet Coke, diet Pepsi or diet other drinks. We bought this flavor so we could make diet drinks for someone who might like a diet cola when we were making our own soda. However, this is really one of the better diet drinks that I have tried. If you make your own soda, this is a good one to try.<br /><br />Orange<br />This is the best one by far of all of the flavors we have tried. This flavor tastes just like the fanta orange soda. We love this one.<br /><br />Cola<br />This cola flavoring is ok. It's not great. You can easily make simple syrups that will not be a cola flavor but will taste much better than this flavor. This is the equivalent of RC Cola. Ok but it's not near as good as other name brand colas.
+
+@highlight
+
+Some are good, some are not so much.

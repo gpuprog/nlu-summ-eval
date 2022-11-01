@@ -1,0 +1,3 @@
+if your new character 's folder is named link_3d , type link_3d in the section .
+this will tell mugen to load the base def file , which will process the rest of the versions .
+there may be lots of comments in your `` select.def '' file .

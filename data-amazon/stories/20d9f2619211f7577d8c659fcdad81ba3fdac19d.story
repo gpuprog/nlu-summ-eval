@@ -1,0 +1,5 @@
+I spotted this exquisite treat at a local gourmet food store and had to give them a try. Excellent flavor and texture, quite unique. And now I can't find them locally anymore, so glad to see them here.<br /><br />St. Dalfour raisins and cranberries are completely different from those which are packed dry. These are moist! And tender and truly delightful. The ingredients listed on the label are: "raisins, cranberries and 'a touch of sugar.'" No preservatives (other than the sugar, of course).<br /><br />These raisins and cranberries are vacuum packed in glass jars and remain moist and plump. I don't know how St. Dalfour achieves this, but the resulting product is simply delectable.<br /><br />A tasty treat right off the jar, but even better in desserts (ricotta torte, clafouti, bread pudding).<br /><br />Made in France.
+
+@highlight
+
+Moist, plump, exquisite

@@ -1,0 +1,5 @@
+As many other reviews have mentioned , these are not the normal K-Cups , but they work much the same . I generally drink the stronger K-cups -LRB- Emeril 's , Jet Fuel , Kona , etc -RRB- , and I find that these Fog Chaser pods compare very favorably . There is no bitter aftertaste , just smooth flavor . I have not had any sediment at the bottom of my cup -LRB- I 've had sediment from other K-Cups -RRB- . I think people are a bit thrown by the smell of the coffee bag when they get it , as it is a much stronger smell than you 'll get from a box of K-Cups . It does smell like when you open a fresh bag/can of ground coffee , which is sort of refreshing after using K-Cups for 3 years . We 've just finished the first bag of 12 -LRB- 6 days -RRB- , which we kept in a ziplock bag , and the last cup tasted as good as the first . I already placed a subscribe and save order for the French Roast to try out . I will be keeping my subscription for the Fog Chaser , as it is quite good .
+
+@highlight
+
+Great tasting coffee

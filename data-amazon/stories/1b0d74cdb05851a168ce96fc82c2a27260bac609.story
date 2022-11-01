@@ -1,0 +1,5 @@
+Oh my word! is all I can say about this honey! A while back, I tried some white creamy raw honey that my sister had that was so uncomparable to any honey I had ever had. I had to have some, but when I found out how much she paid for it, $32 for 32 oz., I decided to try and find something similar elsewhere. Searched all over online and this was the closest looking thing to it. Got it in the mail and found out it is exactly like the other expensive stuff I had tried! I have truely found the most perfect honey!!! You will be so happy. Even my husband who could care less about this stuff eats it like candy. He had an upset stomach one night and I told him to eat a couple tablespoons of it, he did (well maybe more because he couldn't stop munching on it) and his stomach ache went away in about a half hour. It's just plain heavenly and consistency is just like the picture. Spreads beautifully. Please Amazon, never stop selling this!
+
+@highlight
+
+Heavenly Honey!

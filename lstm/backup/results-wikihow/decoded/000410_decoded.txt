@@ -1,0 +1,3 @@
+siri will say , your name is -lrb- blank -rrb- .
+at least that 's what you told me .
+`` if you want to change the way a contact 's name is pronounced , say , say siri , say -lrb- contact 's name -rrb- .

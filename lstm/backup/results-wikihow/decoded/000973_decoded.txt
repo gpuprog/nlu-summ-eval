@@ -1,0 +1,3 @@
+clicking no will start up the system restore wizard that will allow you to reset your computer to an earlier point but it to may be infected .
+when ready ... an info box will pop up eventually giving you the option to continue using safe mode or use system restore .
+click yes to continue in safe mode .

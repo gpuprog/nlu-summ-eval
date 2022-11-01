@@ -1,0 +1,2 @@
+These files was generated from [Amazon Food Review dataset](https://www.kaggle.com/datasets/snap/amazon-fine-food-reviews) with ../lstm/data-preparation/make_datafiles.py
+Please read high-level and lstm's readme files.

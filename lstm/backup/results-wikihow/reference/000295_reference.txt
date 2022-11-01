@@ -1,0 +1,1 @@
+fine-tune the position of the arm by turning the micrometer knob until the object rests on the horizon .

@@ -1,0 +1,1 @@
+from the desktop , locate the notification tray .

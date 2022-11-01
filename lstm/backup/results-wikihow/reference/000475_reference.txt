@@ -1,0 +1,1 @@
+make sure windows media player -lrb- wmp -rrb- is equipped with a codec pack .

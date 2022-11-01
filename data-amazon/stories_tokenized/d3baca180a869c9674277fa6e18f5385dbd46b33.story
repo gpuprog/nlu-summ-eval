@@ -1,0 +1,5 @@
+Now that I have developed a taste for peach gummies , and after experimentation , found the freshest , softest , most tasty example of this product apparently sold everywhere , I am disappointed with Amazon 's version of the same product . The gummies arrived safely on time . No problem . Everything was the same until I bit into the first one . It looked the same , smelled the same , even tasted the same , but the texture was not soft , nor did it taste fresh . It seemed like this product had been on the shelves for months . I 've had some that were harder , obviously old . But these gummies were unsavory simply because they were not fresh . <br /> <br /> I hesitate to want any more by the subscription method . I had chosen the seller that sent the best product , obviously Amazon did not choose MY choice . Please cancel this subscription . I want to receive my gummies from the vendor I know has a fresh product . Thank you .
+
+@highlight
+
+Not what I expected

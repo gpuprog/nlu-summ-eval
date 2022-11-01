@@ -1,0 +1,5 @@
+To whom it may concern,<br /><br />I recently received my order from "Indus Spice Company" of 16 ounces of Ceylon Cinnamon.  When I opened the package and tasted the product, I was shocked that it didn't have the sweet taste of the Ceylon Cinnamon I had bought from "My Sage Spice Company" last year.  When I put some in my mouth, there was hardly any taste.  It's texture was gritty and the small bits seemed to stay in my mouth which was annoying.  I paid about $12.00 more for the pound of Indus Ceylon Cinnamon because it was organic.  Since it was organic, I thought it might taste better.  I was so wrong.  Now, I've since bought the product from My Sage Spice Company again as I had last year.  My only problem is how to return the Indus Company Ceylon Cinnamon and hopefully get my money back.  I would appreciate any help you could give me in negotiating the return of the Indus Company product.<br /><br />Thank you,<br /><br />Mike Waterworth
+
+@highlight
+
+Review for Indus brand Ceylon Cinnamon

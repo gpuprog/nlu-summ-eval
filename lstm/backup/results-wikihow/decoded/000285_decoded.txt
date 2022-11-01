@@ -1,0 +1,2 @@
+it 's a good idea to write down a miniature contract , so everybody is clear on the terms and has a record of it .
+something like `` fred has agreed me to loan $ 3000 for 12 months , with each repayment consisting of $ 250 , with no interest -lrb- 0 % -rrb- .

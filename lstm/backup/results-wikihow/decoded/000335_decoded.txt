@@ -1,0 +1,4 @@
+let a = x , b = b , c = b ^ 2 .
+let ax ^ 2 + bx - c = 0 .
+then let the quadratic roots be given by ... -lcb- x1 , x2 -rcb- = .
+let -lcb- x1 , x2 -rcb- = -lcb- phi1 , phi2 -rcb- and let b = 1 .

@@ -1,0 +1,3 @@
+clicking on this button will open a pop-up box showing the list of all invited guests .
+clicking on this event , you will see the number of invitees who selected going or maybe , as well the number of people who were invited but have n't responded yet .
+clicking on this button will open a pop-up box showing the list of all invited guests .

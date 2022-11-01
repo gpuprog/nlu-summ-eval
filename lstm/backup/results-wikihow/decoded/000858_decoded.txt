@@ -1,0 +1,5 @@
+sudo apt-get install telnet .
+you will be prompted for a password .
+example : sudo apt-get install telnet .
+you will be prompted for a password .
+you will be prompted for a password .

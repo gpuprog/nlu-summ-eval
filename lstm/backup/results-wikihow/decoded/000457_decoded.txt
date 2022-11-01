@@ -1,0 +1,2 @@
+enter all of the lyrics into the file , with each line of lyrics on a new line in the text document .
+enter all of the lyrics , or copy the text from a lyrics website .

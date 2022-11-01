@@ -1,0 +1,5 @@
+The black salt seems a little bit mouisture.  When you are seasoning in you dish or pan, the black colour may spread over.<br /><br />"Although not as popular as the traditional red alaea salt, hawaiian black sea salt, or lava salt, is a dramatic, glossy black sea salt.  The unique color comes from lava, which adds minerals and activated charcoal which results in a sulfuric aroma and earthy flavor.<br /><br />hawaiian black sea salt is used both as a finishing salt and a roasting salt.  It is often used as a coating on fish to help preserve both flavor and moisture as it bakes.<br /><br />suggested uses:<br /><br />Delicious on all types of seafoods, especially shellfish such as clams, mussels or scallops." - By www.faeriesfinest.com
+
+@highlight
+
+Interesting product, but not highly recommended

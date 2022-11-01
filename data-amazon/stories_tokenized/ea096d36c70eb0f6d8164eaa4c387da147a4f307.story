@@ -1,0 +1,5 @@
+I 'm not entirely sure if I can give an objective review for this product . Why ? Well , unlike me , my dog is not a picky eater . He 'll eat anything we give to him , including carrots and the occasional licking of a yogurt spoon . I think his voracious appetite was passed on to him by his predecessor , who once ate a pound of cheddar cheese my mother and I naively placed on our kitchen counter before going out to run a few errands . <br /> <br /> So for that reason , I do n't think my review is going to be all that helpful for those considering buying this product . My dog was on another brand of dog chow , but we slowly began the transition from his food to this product . When James is usually fed breakfast , lunch , or dinner , he eats it pretty fast . But once he was fully on Chef Michael 's dog chow , James inhaled his meals . I have never seen my dog eat his food so fast . <br /> <br /> So I guess it was a hit , after all !
+
+@highlight
+
+Good

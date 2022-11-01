@@ -1,0 +1,1 @@
+include the shipping price in the total price or minimum bid .

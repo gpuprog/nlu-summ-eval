@@ -1,0 +1,4 @@
+the most common are administrator , global/super moderator , member , and banned .
+most software allow unlimited member-groups but too many can make organization confusing , tedious , and time consuming .
+the most common are administrator , global/super moderator , member , and banned .
+make forum member groups so that you can organize your members .

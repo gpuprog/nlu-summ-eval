@@ -1,0 +1,5 @@
+These pouches are a godsend . I keep a stockpile in the pantry and in the car . Even on days when my two-year-old is feeling particularly picky , he will eat these up without blinking an eye . I love that they are made with organic ingredients with TWO green vegetables -- peas and green beans -- in one pouch , not to mention the pear for fruit . I also like that the salba is included in these pouches for the omega 3s and extra fiber . I had never heard of salba before , but it is a very nutritious grain that I 'm glad to have in my son 's diet . These pouches are dairy-free , nut-free and gluten-free too , so I never had to worry about them affecting my son 's food sensitivities , although he has now outgrown most of them . All in all a great product and the flavor is a winner , even with my picky son !
+
+@highlight
+
+Love these !

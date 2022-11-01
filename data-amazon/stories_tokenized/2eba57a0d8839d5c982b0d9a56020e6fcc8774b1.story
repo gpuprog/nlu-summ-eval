@@ -1,0 +1,5 @@
+I have a dog who barks a lot and we have been training him not to bark as much by using the `` Quiet '' command and giving him a treat every time he is quiet -LRB- first we conditioned him before he barked by saying `` quiet and giving him a treat every time we said that word - now when we say that word he immediately stops whatever he is doing and looks for a treat -RRB- . <br /> <br /> Treats we have used in the past were good but because they were dry , they were n't as stinky and did n't get his attention during one of his barking rants . These treats are soo stinky and my dog loves them ! <br /> <br /> I love them because they are easy to break up into 10 + pieces for training since they are soft . Also , compared to most other snacks they are healthy with duck meat being the first ingredient . Although I would n't consider these treats to be the healthiest you can get , they are certainly not the unhealthiest . We use the duck flavor because my dog has diarrhea when he has chicken , beef , or salmon and these work well for him .
+
+@highlight
+
+My dog Loves these treats the most !!!

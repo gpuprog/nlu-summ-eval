@@ -1,0 +1,5 @@
+I was just starting to think about healthy foods, granola, fiber etc, and I already tried the "Cascadian Farms Maple Brown Sugar Granola Cereal, 17-Ounce Boxes (Pack of 5)" which isn't as healthy and great tasting as this!!  If you know about Weight Watchers points, you'll know what I'm talking about next.  I have one of those Weight Watcher cards from a few years back *ahem* and I calculated that 1 cup of this is only 2 points.  (The granola cereal was 3/4 cup for 4 points)<br /><br />I didn't think they could make such a good cereal with such low points!  It's those 9 grams of fiber!  I love it!<br /><br />FYI - I paid $6.72 (with subscribe and save) for a box of 4.  I like to post what I paid to help others in their decision at the time of purchase since prices change so frequently here.<br /><br />HAPPY EATING!
+
+@highlight
+
+LOOKING FOR HEALTHY AND FLAVORFUL?  STOP HERE!

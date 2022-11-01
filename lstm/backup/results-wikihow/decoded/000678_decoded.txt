@@ -1,0 +1,2 @@
+one pgp certificate for your organization that includes the entire list of users that will share information .
+once you have established your list of public keys and data sharing protocol , you can begin developing methods to verify pgp .

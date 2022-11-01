@@ -1,0 +1,2 @@
+a value of `` 0 '' and null are not the same and will behave differently .
+a value of `` 0 '' is used to declare a variable and assign a value to null .

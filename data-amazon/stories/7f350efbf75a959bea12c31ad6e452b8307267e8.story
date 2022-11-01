@@ -1,0 +1,5 @@
+We have a 10-month-old boxer and found a trainer to work with us.  The trainer recommended these treats for training because they're small and the dog doesn't have to stop and chew and chew between activities.  Also, these chicken and salmon treats seem to have healthier ingredients than most other dog treats.  Truthfully, I am not an expert on what's good or bad for dogs nutritionally, but I'm sitting here looking at two dog treat bags.  One has dried whey, palm kernel oil, sugar, dicalcium phosphate, maltodextrin, defatted peanut flour, salt, soy lecithin and caramel.  Basically sounds like candy.  Mini naturals have chicken, ground barley, ground rice, lots of vitamins...no detectable sugars.  Maybe dogs don't need the grains, but the protein-based, no-sugar recipe seems like a better choice.  Try a bag and if you don't like them, you can return the unused portion to the company for a full refund.
+
+@highlight
+
+Best dog treat - great for training

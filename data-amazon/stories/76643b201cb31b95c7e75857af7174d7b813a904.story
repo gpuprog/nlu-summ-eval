@@ -1,0 +1,5 @@
+This is a great item to bring to a party or enjoy with friends on movie night. The mix of seeds and chocolate is just right--slightly indulgent, but not a bag of candy. I bought it to share with family members who have dairy and nut allergies, but everyone dug right in, and went back for more. It's a light mix, very flavorful, and just right for snacking or enjoying with a casual meal. Some people in our party even put it on top of their fruit salad.<br /><br />A few other reviewers mentioned splitting it up into six separate containers, and that's what we did, even though we served one whole bag of it at once: we split it into six small glass dishes and let everyone dish his own with tablespoons. I think splitting it up does keep the mixture just right, without letting the heavier seeds settle to the bottom.<br /><br />A lot of trail mixes get stuck in your teeth, and I have to say, that was not a problem with this one. Whether allergies are in your life or not, I highly recommend this mix.<br /><br />I only wish it were organic. (Then I would give it five stars.)
+
+@highlight
+
+Great for everyone, allergic or not!

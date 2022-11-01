@@ -1,0 +1,1 @@
+now add details to the body in a similar method to the head .

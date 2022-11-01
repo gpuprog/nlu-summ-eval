@@ -1,0 +1,3 @@
+the correct value should lie directly beneath the center line of the movable arm .
+the full testing range exists between 0 and 180 degrees .
+but the average or expected reading is around 150 degrees .

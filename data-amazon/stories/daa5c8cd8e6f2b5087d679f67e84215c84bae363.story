@@ -1,0 +1,5 @@
+These chips are very, very good. They are flavorful and crispy and some have a great texture. Some, not all. Unfortunately, about half of the chips are extremely hard to the point where no one in my house will eat them. They are so hard, it's almost impossible to crunch through them! It may have been a looming expiration date (I bought 12 of the large bags about three months ago) but as I noticed each new bag having more and more hard chips, I quickly gave them all away thinking that at least someone should enjoy them before they completely go bad because there was no way I would get around to eating that many by myself. So I can't check to see if that was the problem or not but after seeing how many reviews talk about this issue, I'm thinking it's pretty prevalent.<br /><br />My suggestion would be to find a single bag to purchase because while buying in bulk tends to be cheaper, you're just wasting money if you end up throwing a bunch away because it's gone stale.<br /><br />But other than the staleness, I LOVE these chips!
+
+@highlight
+
+Buy in smaller batches

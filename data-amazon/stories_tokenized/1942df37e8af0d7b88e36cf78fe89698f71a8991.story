@@ -1,0 +1,5 @@
+I was so disappointed when I received my package . I ordered these for my husband for Christmas as he loves them but I was expecting the ` LARGE ' fireballs . I wish the distributors would specify in their description whether the fireballs are ` small ' or ` large ' . I was under the assumption that since it was a 3lb bag , it would be the large fireballs . I still have the container from the last time I ordered Atomic Fireballs and it had the weight listed as 3lbs so I thought I would be receiving 3 lbs of large fireballs . I am still debating on whether to return them or not . I am going to wrap them and let my husband open them for Christmas . I will leave it up to him whether or not I will return them and search yet again for the ` LARGE ' fireballs . What a bummer because I love them too . . the big ones !
+
+@highlight
+
+Small Fireballs - Ugh

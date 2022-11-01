@@ -1,0 +1,5 @@
+While on a short vacation , we were at a restaurant that offered complimentary breakfast . At first the spread looked like a standard , medium-priced hotel morning offering . They had cereal , muffins , breads , and juices - but they included some hot items as well . That was great , but once I saw the Belgian Waffle iron , I was delighted - I love Belgiam waffles , so I figured I give it a try . Well I LOVED the waffles and found out that the iron and oven came from the same company . <br /> <br /> While I was at the breakfast table , I went online to order the same mix . I was delighted when my waffles at home ended up just as delicious as the ones at the restaurant . <br /> <br /> I have tried three different Belgian Waffle mixes and this brand tops them all in ease of preparation , consistency of batter , and storage . I have to say , the Krusteaz Belgian Waffle mix has a flavor equal to the Golden brand , but Krusteaz is more expensive , and I have n't found it in a reclosable container with a sealing lid . <br /> <br /> I strongly recommend this mix , it 's delicious ! <br /> <br /> Enjoy !
+
+@highlight
+
+Fantastic , Easy to Make Waffles

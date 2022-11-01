@@ -1,0 +1,5 @@
+I bought this after comparing ingredients on about a zillion bags of dog food.  I have a 10yo husky who has put on about 10 lbs over his ideal weight in the last couple years.  He also has had bouts where his stomach acids 'gurgle' as though they're unsettled.  I had him on Innova Lg Breed Senior and he maintained his high weight.  He's been eating this for about 3-4 months now, has lost 4 lbs. and no longer gets the gurgling stomach.  He seems vibrant as ever.  Though I typically add a little meat, he is willing to eat this food dry on its own (something he's never done with other foods).  The only downside I have noticed is that it makes his stools VERY smelly - not sure if this is because he's sensitive to an ingredient or a result of the probiotics/supplements the food contains.
+
+@highlight
+
+Seems great for overweight dogs

@@ -1,0 +1,5 @@
+My dog is highly allergic, a picky eater and prone to dehydration. The quality of ingredients, moisture content and palatability of Natural Balance L.I.D. Sweet Potato and Fish has kept me a return customer even after trying more expensive fish-based grain-free canned foods. I now mix this in a 1:1 ratio with the Natural Balance L.I.D. Sweet Potato and Fish dry food and it has done wonders for my dog. She now can't wait to eat, no more itching/scratching, has a silkier coat and has a wetter nose (something the vet didn't think possible owing to some potential facial nerve damage). In addition to all of the benefits, I also have to praise Natural Balance for keeping such as high quality food affordable. For less than $2 a 12-ounce can, I can have it shipped directly to my door in a few days.
+
+@highlight
+
+Love this food!

@@ -1,0 +1,5 @@
+Having gone to half-caffeine , then full decaf , and still being advised to use coffee only as medicine , 3 cups a month , I checked out coffee alternatives . This is the first I 've tried and based on the reviews of other grounds , I went with the French Roast . This is much better than I 'd hoped ! No , it does n't taste like coffee , but it does have its own very rich flavor . Based on other reviews I brewed it a little stronger than the package directions , about 2 3/4 TBS for 4 cups . It is very good with half and half , with chocolately tones and a velvety texture . For a minute I forgot what I was drinking and thought I had made a hot chocolate . I like dark dark chocolate , and a good pint of Guinness occasionally so the bitter undertone suits me fine . For others , it may be too much . I was pleasantly surprised and will drink this again .
+
+@highlight
+
+Better than I was expecting !

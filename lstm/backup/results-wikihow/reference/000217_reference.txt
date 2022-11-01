@@ -1,0 +1,1 @@
+when a player has no tiles left in their personal pile , give them 7 more tiles .

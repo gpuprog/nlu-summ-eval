@@ -1,0 +1,5 @@
+It smells nice , and has a thick consistency , but rather than call it a scrub , I 'd call it a cleanser ; the particles meant to be scrubbing your face are n't big enough to do much scrubbing ; if you want a very , very , very gentle scrub then this may be for you , but for those of you who have used the St.Ives Apricot scrub , and want something more effective then you should look elsewhere . On the plus side , it is partially organic , and natural , and as I mentioned earlier it smells nice . I just saw a review about how it smelled like rotten pineapples , and how it caused a pimple outbreak on the reviewer-I 'm guessing it was either expired , or had gone bad so do n't let that scare you away from trying it-you might like it . As for me , I need something with bigger particles so maybe I 'll just do a homemade scrub with sugar-or better yet , I can add a little sugar to the scrub to make it more effective . Oh , and before I forget , my face did look a little brighter after I used the scrub . It is n't allthat bad , but it 's just not what I was looking for in a scrub .
+
+@highlight
+
+It 's alright

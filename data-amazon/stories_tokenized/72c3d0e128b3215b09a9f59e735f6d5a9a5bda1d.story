@@ -1,0 +1,5 @@
+What an interesting treat ! Yes , you may feel the flavor of raw cacao , but this aspect is mild , and you may not even notice it if you do n't focus on it . What you are more likely to notice is how elegantly it 's crafted in terms of mouthfeel -LRB- both the chocolate itself and the combination of the chocolate and the filling -RRB- . I think this product is a masterpiece , taste-wise and texture-wise . The only obstacles for my family to buying from this brand often are the price and the presence of some added sugar -LRB- relatively little though , judging by the numbers on their labels ; I just wanted to point out that agave nectar is especially high in fructose , the `` worst '' of `` simple sugars '' , and this brand uses some agave nectar - hopefully very little -RRB- . <br /> <br /> The name is misleading though - I ca n't feel `` caramel '' no matter how hard I stretch my imagination . It 's delicious , just do n't expect that dairy flavor . <br /> This brand 's other bars , Acai and Goji , are similar , but `` Maca '' is NOT chocolaty and disappointing .
+
+@highlight
+
+Very creative ! -LRB- but `` caramel '' is n't the best name for it -RRB-

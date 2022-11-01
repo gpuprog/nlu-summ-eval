@@ -1,0 +1,5 @@
+I recently upgraded to higher quality canned food, first trying the standard Weruva offerings and now the BFF (a Weruva sub-brand?) I like that BFF offers flavors with gravies and others with aspic, as it increases feeding time variety. BFF is certainly a good value compared to the other high-end natural and grain-free products, and even my pickiest senior guy enjoyed the tuna and bonito variety. I will continue purchasing the standard Weruva in Paw Lickin' Chicken since my boys love it, but we are happy to mix it up with BFF. The inclusion of the skin on some fish pieces is certainly a confidence-booster that my cats are getting real food, not mystery meat. I also appreciate the 5.5 ounce can size, as we can share a can each feeding and both cats get their fill.
+
+@highlight
+
+BFF Tuna and Bonito Be Mine, 5.5 oz. 8-pack

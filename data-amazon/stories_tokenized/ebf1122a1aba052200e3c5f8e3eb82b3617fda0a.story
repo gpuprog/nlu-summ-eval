@@ -1,0 +1,5 @@
+I have two litter mates . One can eat anything with no problem . The other always vomits ten minutes after eating , no matter what she eats : canned or dried makes no difference and I 've tried every store brand there is . Hairball treatments had no effect . I figured `` cats throw up '' and did n't worry about it . When I moved and switched vets the new vet asked if the cats ever threw up . When she heard about the one cat she said cats do NOT just throw up and told me to get the Science Diet sensitive stomach food . Yes , it 's 4x the price of what I 'd been buying , but I noticed a difference with the first bowl . Instead of throwing up ten minutes after literally every meal , now she throws up maybe once a month . If only I 'd switched to this brand years ago we both would have been saved a lot of misery . Even tho it costs more I 've noticed that the bag seems to last longer than the same amount of cat chow did .
+
+@highlight
+
+wish I 'd started using it 5 years ago

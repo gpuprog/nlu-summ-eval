@@ -1,0 +1,3 @@
+the video will begin playing on the tv screen .
+you can control playback from the app on the ipad.if you are experiencing poor performance , it may be because your tv is connected wirelessly .
+try connecting your smart tv via ethernet instead of wi-fi .

@@ -1,0 +1,5 @@
+My sister has been gluten-free for a while now, and while she was able to find an acceptable pasta (try the Tinyaka or one made from a blend of grains), she gave up on bread because all of the store bought loaves were completely inedible and very expensive.  I wound up making breadcrumbs from all the loaves that would have gone to waste.  When my mother told us that a friend of hers loved this bread mix, my sister went out and bought a bread machine and ordered the Pamela's wheat-free/gluten-free bread mix.  She wanted to try one and fully expected to give the rest to mom's friend.  Much to her surprise, this bread was better than good.  It was very good!  I am not gluten-free, but I would definitely eat this bread.  It has the taste and texture of a dense whole grain bread.  Be sure to follow the directions exactly!  I don't think you'll be disappointed.  The only downside is the price.  Next time we'll order the bulk mix.
+
+@highlight
+
+Very good bread, even for non-GF people

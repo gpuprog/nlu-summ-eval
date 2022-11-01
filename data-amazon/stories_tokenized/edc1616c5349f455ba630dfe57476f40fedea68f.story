@@ -1,0 +1,5 @@
+Since my brother is very into healthy and nutritious food , I gave him a box of these to test and taste . He said : <br /> `` These are excellent as a meal replacement or snack . The organic ingredient composition combined with the great fruit taste and chewy texture make it the healthy choice for exercise and outdoor activities . Only main downside is the regular price , which is roughly double the cost of competitors . '' <br /> <br /> I had a couple , they do indeed taste good , not too try like some other energy bars , and not too crunchy where it 'll break your teeth ! You can taste the strawberries inside and it 's pretty decent for a snack too . Interesting that there 's `` unprocessed dates , oats , and cashews '' inside , I would n't have noticed the dates and I 'm not a big fan of those . Not sure if I felt `` full of energy from dawn until dusk '' after eating these , but I 'm sure it 'll work for some !
+
+@highlight
+
+Decent for snacking

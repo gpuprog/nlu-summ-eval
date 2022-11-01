@@ -1,0 +1,4 @@
+search online for a `` wmp codec pack , '' download a reputable looking one , and follow instructions .
+once downloaded , the pack should integrate with wmp automatically .
+once downloaded , the pack will enable wmp to encode and decode audio files for playback , essentially allowing it to create any number of audio files .
+search online for a `` wmp codec pack , '' download a reputable looking one , and follow instructions .

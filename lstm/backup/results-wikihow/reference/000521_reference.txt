@@ -1,0 +1,2 @@
+test your change : .
+open up a new command prompt : you do this the same way you did above when installing python .

@@ -1,0 +1,5 @@
+Looking at the shape of this snack you will think you are eating Cheetos. But rest easy there's no grease here. This is the perfect snack if you're trying to diet. There should be something fun if you're fighting the calories, and this was perfect! For 110 calories, you get 65 smart fries, and I actually felt full after eating a bag. They're light and crispy and very flavorful. Here's what I thought about the flavors:<br /><br />Honey Mustard and Onion: My fav by far! I can taste the honey dijon and the sweet onions. Delicious!<br />Vinegar Splash: Lots of vinegar flavor!<br />Honey BBQ: More subtle in flavor, but very tasty.<br />Vintage Cheddar: Classic Cheese Curl flavor, light and salty.<br />Sea Salt: allows the potato flavor to shine through. Yum!<br />Jalapeno Trio: I liked this one the least, if I'm going to eat a flavor like this I would want something greasy with it, which would defeat the purpose of a healthy snack!
+
+@highlight
+
+Healthy, delicious but not cheetos!

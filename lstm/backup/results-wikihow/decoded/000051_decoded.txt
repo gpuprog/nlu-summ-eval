@@ -1,0 +1,3 @@
+create a schedule that includes a date and time for each activity .
+remember to leave space for meals and travel time .
+allow flexibility in your itinerary , as plans may change along the way .

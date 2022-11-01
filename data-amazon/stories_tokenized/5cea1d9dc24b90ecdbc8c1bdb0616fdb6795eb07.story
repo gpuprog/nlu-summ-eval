@@ -1,0 +1,5 @@
+I did so much research as to what formula will be best for our child . We wanted to choose organic definately and was willing to pay the cost . Then we came across this brand and instantly fell in love . I love the fact that they support breast feeding and insist babies be fed just that for first year but ofcourse we all know it is not always as easy as it sounds . I breast fed my baby for first 6 months exclusively and pumped exclusively as she would never latch . When I weaned him off breast milk , we started him on babys only organic formula . our son love it ! He has never had any problems with it . No constipation at all infact he goes x2-x3 daily . I have also read some bad stuff on internet such as the recent study condeming this formula and yet I still stand by it and will continue using it . I would say to the company , keep on making good formula for little ones but if at any chance you are thinking or doing any harm to our little ones , you must stop immediately as we all have faith in you . i bought my formula on amazon it is definately much cheaper than other places
+
+@highlight
+
+babys only is the best formula on the market hands down !

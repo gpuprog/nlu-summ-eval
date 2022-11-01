@@ -1,0 +1,2 @@
+click on the close or exit button on the upper right corner of the browser -lrb- x icon -rrb- .
+the browser will close and stop running. ; you must first close internet explorer .

@@ -1,0 +1,5 @@
+Quaker Oats has been a staple in American business for the past century and is well known for a wide range of products, including Rice-a-Roni, granola bars Aunt Jemima Syrups, Gatorade and of course, Quaker Oatmeal.<br /><br />I don't personally eat a great deal of cereal and am not partial to Quaker's Life or Capt Crunch brands, but we must complement the company on its Oatmeal Squares product.  The squares are rather small and keep a good balance with milk - they do not become soggy in 60 seconds.  The brown sugar flavor is adult sensitive sweet and actually retain their flavor.  They could be included as a snack or as a light meal other than breakfast.  The amount needs to be watched as the calorie count can jump on one if not careful.<br /><br />It is refreshing to note that the classic companies continue to produce and quietly promote their quality products.<br /><br />Well done, Quaker Oats<br /><br />Dr. John Hogan  CHA CHE CMHS<br />HospitalityEducators<br />Hogan Hospitality
+
+@highlight
+
+Reinforcing the posiitve we already knew about Quaker

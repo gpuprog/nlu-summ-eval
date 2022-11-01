@@ -1,0 +1,5 @@
+These are wonderful!  They're definitely chocolate, but not overpowering.  The sea salt provides a nice foil, so you can eat a whole bag by yourself without going into a chocolate coma (maybe that's bad).  They're just sweet enough to make the chocolate happen.  They're like "hint of oreo" without all the garbage and without all the guilt (unless you eat a whole bag in one sitting).<br />I've had them with a peach salsa, which was nice.  I think they'd go really well with a fresh fruit salad.  They'd go well with ice cream, and they're perfect with a tart, plain yogurt.  I dipped them in hummus too, and while it doesn't not work...I'm not sure it's great.  Still, basically they're versatile and not too bad for you.  When you find yourself at the bottom of the bag you can always say, "well, at least it wasn't a bag of oreos."
+
+@highlight
+
+snack food heaven

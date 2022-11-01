@@ -1,0 +1,5 @@
+If you like all in one meals , then Velveeta Cheesy Skillets is one you should try . I bought the already cooked sliced chicken in the meat section to add in . Pros of the meal : 1 -RRB- cheesy 2 -RRB- flavorful - I did n't need to add any other seasonings . It did n't require any salt , pepper , or whatever else your tastebuds may call for . 3 -RRB- The servings were plentiful . It serves a family of four perfectly . There were only 2 in my house , but we had enough for lunch the next day . 4 -RRB- The leftovers were just as tasty as the first night of eating it . The only con that I can think of is that the meal uses dried broccoli , which has a strong sweet taste . If you are able to substitute it with fresh broccoli or even frozen broccoli , that would balance the taste better .
+
+@highlight
+
+Almost as good as Hamburger Helper ...

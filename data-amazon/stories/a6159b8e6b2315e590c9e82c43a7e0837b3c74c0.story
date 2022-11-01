@@ -1,0 +1,5 @@
+This food was the best out there until Spring 2009, then they changed the formula.  If you check the website, they admit they lost their access to the "quality" duck protein they were using.  Easy way to tell was the food went from light brown to greenish.  That, and after your dog eats the new formula, he will throw up and have diarrhea all over your house. I have two mutts, neither of which are picky eaters.  Both of them chose to starve, rather than eat this food after the formula change.  When combined with the fact that Natural Balance was part of that Chinese dog poisoning issue a few years back, I don't trust this company not to kill my dogs.<br /><br />By the way, if you buy it from PetCo, you will never know, since this food is a good seller, and PetCo has been editing its reviews of the product to delete anything that puts people off the food.  They should be ashamed of themselves, and I won't be getting food there, anymore.<br /><br />Do yourself and your dogs a favor and avoid Natural Balance Ultra.
+
+@highlight
+
+Formula change- Now it makes the dogs sick.  Avoid this food.

@@ -1,0 +1,5 @@
+I've tried all the Fiber One cereals. The one that tastes best out of the box is the one with raisins, but that one has more calories than the regular brand. That one makes a good trail mix if you're hiking. The regular brand is a little bland, so I add fresh fruit to it. Sometimes blueberries, sometimes raspberries, sometimes I cut up a banana. I also buy bags of frozen blueberries or raspberries, thaw some out the night before and add them to the cereal in the morning. I end up with a really great tasting cereal. I'm sure that the fruit I add makes the calorie and sugar count higher, but so what. I think at 14 grams of fiber per serving, it's got the highest fiber of any cereal on the market.<br /><br />A great way to start the morning!
+
+@highlight
+
+14 Grams Of Fiber! Wow! I Hope They Never Change It!

@@ -1,0 +1,5 @@
+I 've had this product for 3 weeks and have used it a total of 3 times . I 'm really trying to get passed all of the kinks . Of course , most of the poor reviews are after I purchased the Baby Brezza . I , as some , was lured into the `` one step process '' . I have 3 kids and thought this would be simple to use . I have difficulty placing the blade into the container . The instructions say do n't force the blade in , but that 's the only way to get it in . I 'm just hoping each time I do n't push too hard and break it . I 'm finding with each use the driveshaft is becoming more difficult to pull out . Setting all of those aside the machine -LRB- in my opinion -RRB- works great ! I 've had no problems with puree or steam . It works beautifully !!! It does leave too much water in the chamber , but I just pour the excess after I 'm finished . If I can get these problems resolved it will be a nice machine . From reading the other reviews it seems the problems will only get worse . I 'm hoping I did n't buy a lemon .
+
+@highlight
+
+Really trying to be happy

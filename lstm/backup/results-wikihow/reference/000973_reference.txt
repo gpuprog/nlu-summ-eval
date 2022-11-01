@@ -1,0 +1,1 @@
+when presented with the login screen , choose the administrator account .

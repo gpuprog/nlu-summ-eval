@@ -1,0 +1,2 @@
+minireenas will appear at random and block your view , preventing use of the door and vent buttons .
+once they appear , they will not leave until you die or complete the night .

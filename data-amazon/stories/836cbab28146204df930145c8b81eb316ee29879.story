@@ -1,0 +1,5 @@
+PetSafe Lickety Stik is a weird looking dispenser full of a delicious liquid treat my pooches are crazy about.  The strange design is slightly bigger than a deoderant bottle and the dogs get their treat by licking the roll-on ball!<br /><br />I own Wonderland Kennels, with 7 Boston Terriers and German Shepherds that I train and compete with.  Even the picky ones love this stuff.  The bottle is small, but it goes a loooong way because the pups are only getting a little at a time, instead of a larger treat.<br /><br />Pacino and Molly (German Shepherds) first instincts were to try to bite down on the dispenser, but it didn't crack and is still holding up fine.  They quickly learned to just lick it, though the best way to introduce it to larger dogs is to hold it completely upside-down so the angle makes it easier to lick and harder for them to grab.<br /><br />I'm honestly surprised by how big a hit this little Lickety Stik is with my pups, and how long the bottle lasts.  Maizy, Molly, Gracie, Pixi, Einstein, Pacino, and Isabelle each give it four paws up!  :)
+
+@highlight
+
+My dogs love it, even if it is funny looking

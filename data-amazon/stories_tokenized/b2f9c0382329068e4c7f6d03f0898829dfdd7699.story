@@ -1,0 +1,5 @@
+We have a bichon frise , who is allergic to corn , soy , wheat , oats , chicken , beef , and lamb . We got her when she was six months old , and she already had horrible breath and excessive tartar on her teeth . We had her teeth cleaned by the vet , who told us her teeth would probably be a lifelong problem . We were told to brush her teeth daily , but we could n't even find a canine toothpaste that did not contain ingredients from the above list -LRB- beef liver being most common -RRB- . We also tried various `` hypo-allergenic '' treats for her , but most are very expensive , and she did n't even like them . About three years ago , we started giving her one of these every day , alternating between the Vitality and Happy Hips varieties . She liked them immediately and still goes crazy every evening at treat time . She had her annual dental cleaning last month , and the vet told us that her teeth are in great shape . We consider her improved dental health to be a result of giving her these treats each day . I would definitely recommend this to families with dogs who have allergies !
+
+@highlight
+
+Great for Dogs with Allergies !

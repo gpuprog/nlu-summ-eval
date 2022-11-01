@@ -1,0 +1,5 @@
+This Vitamin Squeeze Energy Drink is good tasting and definitely provides an energy kick. I like this type of additive and regularly use Mio, so expected to like the flavor and was also prepared the slight aftertaste from the artificial sweetener.<br /><br />The recommended serving size is "one squirt" per 8oz of water and I find that does make it sweet enough. The flavor is sort of generically "fruity" and is nicely refreshing. It is important to shake the container well before dispensing to ensure everything is well mixed.<br /><br />This does have a good energy lift from caffeine and Vitamin B, and also has significant Vitamin C content (120% per serving). Since this is a good sized bottle at 12oz (24 servings), it is more convenient to keep on hand in the kitchen than the smaller Mio bottles (which are nice to carry on trips).<br /><br />A good choice for home use, mostly due to the large size.<br /><br />Recommended!<br /><br />CFH
+
+@highlight
+
+Good Tasting, Good Energy - Recommended

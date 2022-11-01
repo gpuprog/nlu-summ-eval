@@ -1,0 +1,5 @@
+It's basically shower gel for men. Definitely has a manly-smelling cologne added: some men will like the scent and some will not, we found the scent to be okay. I'd recommend smelling this in the store before purchasing since scents are such a subjective thing.<br /><br />I found this product to work and lather exactly as most of our other shower gels do. Like most shower gels, it doesn't moisturize the skin much, so if your skin is used to being pampered with moisturizing soaps, this may dry your skin out.<br /><br />For being a "wash," it does a good job of cleaning and for its purpose, I give it 4 stars. While we would appreciate a more moisturizing wash, some folks (particularly young men with already oily skin) will appreciate the lack of additional moisturizers.
+
+@highlight
+
+Good for cleaning your body/face

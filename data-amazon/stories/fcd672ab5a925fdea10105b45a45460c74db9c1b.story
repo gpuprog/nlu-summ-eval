@@ -1,0 +1,5 @@
+I would personally probably give this 3 stars, but my mother and another person (both of whom LOVE Mojitos) really liked it a lot, so I thought 4 was a fairer rating.  I enjoy a real Mojito now and then, but this didn't quite cut it for me.<br /><br />I found this to basically taste like regular Crystal Light lemonade with a little fake mint flavoring added.  However, there was also a somewhat odd third taste that I could not identify...and that's the taste I didn't care for.<br /><br />That being said, with alcohol mixed in, I am certain this would probably suffice nicely, especially AFTER the first drink goes down!  ;-)<br /><br />All in all...I wouldn't buy this product again, and I almost didn't want to finish the first pitcher I made (gave the rest away).  But my Mojito-crazy loved ones liked it, so you might too!  I just didn't care for that aftertaste.
+
+@highlight
+
+Good, but I like Appletini flavor better

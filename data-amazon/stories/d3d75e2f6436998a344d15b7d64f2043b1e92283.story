@@ -1,0 +1,5 @@
+My kids love their Macaroni & Cheese but one day all we had was a generic brand.  They didn't eat it all that well (Kraft really is the best) so I decided to try to make it a little better for them.  Follow the recipe on the box with a couple exceptions.  Put one slice of velveeta chees in while melting the butter (I melt the butter while the noodles are draining so as to melt the butter and velveeta faster) and add 1/3 cup milk.  What you'll have is a less expensive version of the really creamy macaroni and cheese that Kraft sells for a lot more money.  By adding extra milk and cheese they're even getting more calcium.  My kids love it when I throw in hot dogs and even peas so feel free to throw in other things since it's so cheesy (the extra cheesy sauce will take things like peas that kids don't normally eat and make them taste good).  Give it a try and see what you and/or your kids think!
+
+@highlight
+
+Make it even better!

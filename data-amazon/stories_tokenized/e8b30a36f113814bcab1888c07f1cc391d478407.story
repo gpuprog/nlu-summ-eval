@@ -1,0 +1,5 @@
+This bone is MASSIVE !!! Probably the biggest bone that I have ever seen . My 135 lb . bullmastiff puppy loved this ! When I opened the packaging , 1/4 of the bone was broken and fell off , which was fine because I did n't want to overwhelm my puppy . I was able to store the larger part in the fridge for another time . He gnawed on it all day and night , but later in the evening , threw up a big pile on the carpet . I think all of the fatty bits made him get an upset stomach , so I put the bone away until the following day . He is a serious chewer and pretty much got that small portion down to a piece that could fit in the palm of your hand , with bits of bone laying everywhere . Obviously , he ate most of the pieces and 2 days later was throwing up . Needless to say , even though this bone is awesome and your dog will most likely love it , you probably need to limit their access to very short periods of time and definitely supervise . It also smells horrible and the smell will get all over your dog and anything it touches . I will not be bringing the other larger piece out for a long while .
+
+@highlight
+
+Purchase with caution

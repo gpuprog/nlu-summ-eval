@@ -1,0 +1,3 @@
+the preview of the website will appear on the right side .
+you will be able to see the formatting changes that printing will cause .
+you can also press ctrl + p -lrb- windows -rrb- or ? cmd + p -lrb- mac -rrb- .

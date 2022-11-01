@@ -1,0 +1,5 @@
+We really enjoy Stash teas and saw the sampler as an excellent way to try new flavors , most of which are not available in any of our local stores . We enjoyed most of the flavors - and have found a new favorite , blueberry . The aroma and flavor is just like fresh blueberries ! The flavor intensity varies greatly between flavors , which can be a good way to find a flavor to suit your mood . The ginger , however , was just too strong and burned my taste buds . I also enjoy Bigelow teas and would agree with another reviewer that some of the Stash flavors -LRB- little under half -RRB- are mild in comparison . However , there are times when a gentle chamomile is just what I need . I probably wo n't purchase another variety pack , but will purchase our new favorite flavors separately . I recommend this to anybody looking to experiment with new flavors ; Stash has some wonderfully original tastes .
+
+@highlight
+
+Enjoyed most flavors

@@ -1,0 +1,5 @@
+We switched to this food from Purina One because the ingredients are advertised to be of much higher quality , and we wanted to improve our dogs ' diet . We made a smooth transition to this food by slowly mixing it in with their existing food , as vets recommend . Once the transition was complete , they were vomiting their meals several times per week , which they had never done before the switch . We continued to feed them this food for about a month to see if it changed , and they still have problems keeping it down . I often see them eating grass to induce vomiting as well , so I think its giving them a stomach ache . They also got to the point where they just did n't want to eat the food at all sometimes , which I 've never seen them do . We switched to Newman 's Own dog food now , and they 're eating much better already . <br /> <br /> I wish I had done some research on this food before purchasing it . Type `` Wellness dog food vomit '' into Google , and you 'll see what I 'm talking about . <br /> <br /> I would not recommend this product .
+
+@highlight
+
+Made both my dogs vomit and eat less .

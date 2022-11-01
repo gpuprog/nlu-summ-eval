@@ -1,0 +1,5 @@
+I ca n't believe I actually bought this stuff in the stores . They charge half as much for less than a quarter of the product . <br /> <br /> Because it was soo expensive , I started buying proprietary blends of `` seasoning salts '' from spice sites around the net . Most of them were good and were comparable in price , but none of them were exactly what they were trying to emulate : Lawry 's . <br /> <br /> Finally , I decided to check back to Amazon to see what the real stuff cost . I was shocked to find out that I was paying the same or more for imitation products . I immediately bought it and have never looked back . <br /> <br /> If you 've never had Lawry 's , you 're in for a real treat . Many recipes call for `` seasoning salt . '' Well , they are generally referring to `` Lawry 's ' without mentioning the name . You can pretty much sprinkle this stuff on anything . It is great on fries ; I mix it with flour and bread crumbs to coat chicken , It could probably be substituted for poultry seasoning .
+
+@highlight
+
+The Real Deal

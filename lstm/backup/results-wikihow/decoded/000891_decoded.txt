@@ -1,0 +1,3 @@
+a tank size of 10 gallons -lrb- 37.9 l -rrb- or more is perfect , any less than that and the toad will not have enough room .
+a tank size of 10 gallons -lrb- 37.9 l -rrb- or more is perfect ; any less than that and the toad will not have enough room .
+a tank size of 10 gallons -lrb- 37.9 l -rrb- or more is perfect ; any less than that and the toad will not have enough room .

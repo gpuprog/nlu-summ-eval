@@ -1,0 +1,5 @@
+My order arrived in a big cardboard box . The bags were just placed in the box and shipped . No plastic cover or anything to protect the bags from insects , moisture , dust , etc. . I 'm pleased with the product but not the packaging . Amazon does not provide any ingredients or nutritional information about this product , so I will . Here we go . <br /> <br /> Ingredients : Corn Masa Flour , Safflower and/or Sunflower Oil , Salt , Trace of Lime . © 2011 Fresh Gourmet Company/Sugar Foods Corporation.Los Angeles , CA 90040 . <br /> <br /> Nutrition Facts : Serving Size - 2 Tbsp -LRB- 7 grams -RRB- , Calories - 35 , Calorie from Fat - 15 <br /> Total Fat - 1.5 g , Saturated Fat - 0 g , Trans Fat - 0 g <br /> Cholesterol - 0 mg <br /> Sodium - 15 mg <br /> Total Carbohydrate - 4 g , Dietary Fiber - 0g , Sugars - 0 g <br /> Protein - 0.5 g <br /> <br /> Note : Each little bag is 14.2 grams .
+
+@highlight
+
+Very good tortilla strips but packaging is poor .

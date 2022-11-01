@@ -1,0 +1,5 @@
+My cat was born in August 2001, so he's almost 10 years old. Three years ago he started to throw up quite frequently. The vet ran tons of VERY EXPENSIVE tests and for the most part ruled out anything that can be treated. We tried changing food but nothing worked. I tried giving him home cooked food as well and that made throwing up even worse. So one day I was in a pet store and the clerk said he had the same problem with his cat and suggested the MOST EXPENSIVE FOOD IN STORE. I was skeptical but I had nothing to lose (but money). Three years later my cat is doing fantastic. He only throw up when I feel bad for him and give him tuna as a pity treat. He's healthy, bouncy and seems to enjoy food. The big bag lasts us for ever. We bought a bag on November 5th and today again on March 19. That's 4+ months for $40 (which is how much the bag costs in pet store). I think I can afford $10/month for my buddy. I have no idea what's in there and I don't really care. All I care is that my cat looks happy and healthy. Food purists who believe in feeding cat organic chicken and brown rice might not care for it.
+
+@highlight
+
+Great for pukey cat

@@ -1,0 +1,5 @@
+Love this salt ! I do n't remember when or why I picked it up in the first place . Initially I bought it at a local fancy kitchen store . When they closed I found a local grocery that carried it . Well , it 's no longer on the shelf there either , so now I am STOCKED with a package of 6 containers of my favorite salt courtesy of Amazon . I 'm not certain of the correct salt terminology , but to me this has a smooth , clean flavor . Other salts now seem to have a big `` bite '' that seems harsh and overpowering on my food . This salt enhances the food without saying `` Hey ! Look at me ! Taste me ! I 'm SALT ! '' Great on popcorn , eggs , anything . I have used this for years , and now that I have several containers , I may just have to share with friends . Arrived in perfect condition , though I understand others have not been as lucky . Each container is large , with a `` sprinkle/shake '' hole , and a `` pour '' hole . I keep mine in an open container so I can grab a pinch anytime . Highly recommend !
+
+@highlight
+
+Never knew I could have a salt brand preference !

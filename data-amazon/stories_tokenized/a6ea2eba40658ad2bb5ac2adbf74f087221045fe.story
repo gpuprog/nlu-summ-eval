@@ -1,0 +1,5 @@
+SO glad to see this on Amazon with free super saver shipping ! I tried Orgain after reading Dr. Julian Whitaker 's <br /> glowing recommendation . I was most pleasantly surprised at how tasty it is , especially considering all the healthful ingredients it contains . I found it at my local health food store and continue to keep it on hand . It is great icy cold but is also good at room temperature , making it handy to toss in a bag or purse while going out and about for those who need a snack or have to miss a meal for one reason or another . When I need to leave the house early , I stick a straw in the container and sip it for my breakfast as I drive . My daughter-in-law who has GERD found that she tolerated Orgain well . Love both flavors but the vanilla has the edge .
+
+@highlight
+
+LOVE this stuff !

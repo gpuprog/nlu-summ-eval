@@ -1,0 +1,5 @@
+This is the best sugar free black licorice I have found to date. This has a good strong licorice flavor up front with a good salt taste in the back of the flavor. I also did not detect any funky after taste. My only complaint is the delivery system. And that is the only reason for the four stars. I found I needed to put about four of those little bears in my mouth at a time to have a small mouth full. And the problem with that required me to chase them around in my mouth while eating them. They are also not all that soft and chewy. And require pretty good teeth to eat them. But all in all they are very good and I would never hesitate buying them again. And I am very particular! I am still looking for some really good sugar free Red Licorice?
+
+@highlight
+
+Finally good black sugar free Licorice

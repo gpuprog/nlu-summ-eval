@@ -1,0 +1,5 @@
+I used to get the Gerber fruit strips for my kids, but they were so expensive for the dinky little strips so I got Kettle Valley.  I really liked the Kettle Valley bc it had actual strawberry seeds which tells me there are actually strawberries in them (as well as one full apple).  I thought I'd try these Island ones because they were cheaper...and I've found they lack quality too.  Instead of being berry colored like the picture mine were brown.  They tasted ok, but they weren't my favorite.  Looking at the label the only benefits it had was 4% of your DV vitamin C.  I'd say they are probably better for kids than the regular sugar packed fruit strips you find in the store, but I don't think they are really worth the advertised 1/2 serving of fruit.
+
+@highlight
+
+Not as good as Kettle Valley...

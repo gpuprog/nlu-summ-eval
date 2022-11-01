@@ -1,0 +1,5 @@
+I have to admit that I tolerate the 70% cocoa level much better than the 85%, so I found this bar a bit bitter, as expected.  Yet I found it really enticing, with me returning to have another little square a little while later.  In small doses, this bar is delicious.  And it enables the dark chocolate consumer to get used to the higher percentages of cocoa.<br /><br />I really did enjoy this dark chocolate bar, as I said in small doses.  It is smooth, rich, and satisfying.  The quality of ingredients and production are quite obvious in the taste, the melt experience, and the overall enjoyment of the product.<br /><br />If you're at the 85% level of tolerance, I would highly recommend Vivani's 85% Dark Chocolate bar.  If you're getting there, use it as training wheels to reach that level.<br />Vivani Chocolates Dark Chocolate With 85% Cocoa, 3.5-Ounce (Pack of 10)
+
+@highlight
+
+Enticing if you can tolerate the %of cocoa

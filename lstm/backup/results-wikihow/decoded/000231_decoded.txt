@@ -1,0 +1,3 @@
+` values ' are exact descriptions of how the properties should be altered .
+properties are enclosed in curly brackets , whereas values are followed by a colon .
+` properties ' are words that refer to a web element -lrb- such as color or font size -rrb- being altered .

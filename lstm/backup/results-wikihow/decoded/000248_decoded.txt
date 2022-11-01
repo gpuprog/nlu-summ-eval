@@ -1,0 +1,3 @@
+the name is the name that will appear when you send an email to someone .
+in the email address field , enter : username@comcast.net .
+your display name is the name that will appear when you send an email to someone .

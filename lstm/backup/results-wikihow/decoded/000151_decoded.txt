@@ -1,0 +1,3 @@
+ie7 is more secure than previous internet explorer versions , and has a better pop-up blocker and phishing protection .
+it can be used with microsoft directx 10 .
+a more sophisticated and intelligent interface than xp .

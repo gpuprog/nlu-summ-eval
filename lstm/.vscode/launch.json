@@ -1,0 +1,93 @@
+{
+    // Use IntelliSense to learn about possible attributes.
+    // Hover to view descriptions of existing attributes.
+    // For more information, visit: https://go.microsoft.com/fwlink/?linkid=830387
+    //"version": "0.2.0",
+    "configurations": [
+        {
+            "name": "Process CNN",
+            "type": "python",
+            "request": "launch",
+            "program": "${workspaceFolder}/pointer-generator/run_summarization.py",
+            "args": [
+                "--mode=decode",
+                "--data_path=${workspaceFolder}/../data-cnn/finished_files/chunked/test_000.bin",
+                "--vocab_path=${workspaceFolder}/../data-cnn/finished_files/vocab",
+                "--log_root=${workspaceFolder}/pretrained_model_tf1.2.1",
+                "--exp_name=test",
+                "--max_enc_steps=400",
+                "--max_dec_steps=100",
+                "--coverage=1",
+                "--single_pass=True"
+            ],
+            "console": "integratedTerminal",
+            "justMyCode": true
+        },
+        {
+            "name": "Prepare Amazon",
+            "type": "python",
+            "request": "launch",
+            "program": "${workspaceFolder}/data-preparation/make_datafiles.py",
+            "args": [
+                "Reviews.csv",
+                "Text",
+                "Summary"
+            ],
+            "console": "integratedTerminal",
+            "justMyCode": true,
+            "cwd": "${workspaceFolder}/../data-amazon"
+        },
+        {
+            "name": "Process Amazon",
+            "type": "python",
+            "request": "launch",
+            "program": "${workspaceFolder}/pointer-generator/run_summarization.py",
+            "args": [
+                "--mode=decode",
+                "--data_path=${workspaceFolder}/../data-amazon/finished_files/chunked/test_000.bin",
+                "--vocab_path=${workspaceFolder}/../data-cnn/finished_files/vocab",
+                "--log_root=${workspaceFolder}/pretrained_model_tf1.2.1",
+                "--exp_name=test",
+                "--max_enc_steps=400",
+                "--max_dec_steps=100",
+                "--coverage=1",
+                "--single_pass=True"
+            ],
+            "console": "integratedTerminal",
+            "justMyCode": true
+        },
+        {
+            "name": "Prepare WikiHow",
+            "type": "python",
+            "request": "launch",
+            "program": "${workspaceFolder}/data-preparation/make_datafiles.py",
+            "args": [
+                "wikihowSep.csv",
+                "text",
+                "headline"
+            ],
+            "console": "integratedTerminal",
+            "justMyCode": true,
+            "cwd": "${workspaceFolder}/../data-wikihow"
+        },              
+        {
+            "name": "Process WikiHow",
+            "type": "python",
+            "request": "launch",
+            "program": "${workspaceFolder}/pointer-generator/run_summarization.py",
+            "args": [
+                "--mode=decode",
+                "--data_path=${workspaceFolder}/../data-wikihow/finished_files/chunked/test_000.bin",
+                "--vocab_path=${workspaceFolder}/../data-cnn/finished_files/vocab",
+                "--log_root=${workspaceFolder}/pretrained_model_tf1.2.1",
+                "--exp_name=test",
+                "--max_enc_steps=400",
+                "--max_dec_steps=100",
+                "--coverage=1",
+                "--single_pass=True"
+            ],
+            "console": "integratedTerminal",
+            "justMyCode": true
+        },
+    ]
+}

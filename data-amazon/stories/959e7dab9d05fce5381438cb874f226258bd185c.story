@@ -1,0 +1,5 @@
+When it comes to weight loss, there is no such thing as one size fits all.  I don't care what the bottle looks like and I am not going to deduct points because it took an extra day or two to get to me.  What really matters is 1-Does it work? and 2-Are there any side effects?  My co-worker started taking this and based on the reviews, I figured it was another gimic. Then I tried it.  I literally felt the energy burst about 15 minutes after taking it.  As I left the office for the day, it dawned on me that I did not eat my normal morning or afternoon snack because I was not hungry.  At lunch, I only ate half of my sandwich and (believe it or not) even turned down the brownie tray.  This is huge!  I like the taste, I like the ingredients, and even after taking a shot before dinner - fell asleep at my normal time.  I'm sold and will make this a regular part of my plan.  This product does exactly what it says it does - appetite suppressant.
+
+@highlight
+
+Awesome

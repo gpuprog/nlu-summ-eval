@@ -1,0 +1,11 @@
+constant communication is required , there is no point in 5 bands bringing 5 drum kits , and 5 sets of amps , only for four of them sit outside in vans ready to be stolen . generally it is the headlining acts job to supply a drum kit , and the other drummers will have to provide what are known as breakables , -LRB- snare , cymbals , bass drum pedal -RRB- However , some drummers are not comfortable with this and will want other bands to use another kit . If each band does use their own kit , the gap between bands will go from 15 minutes to 25 and sound checks will be at least 5 minutes longer . On a night with three bands , not a problem , 5 bands and an 11 O'clock cut off , you will have major night mares . Likewise with guitarists , it is generally acceptable to use other people cabs -LRB- the speakers under their amps -RRB- but not the amps themselves unless the bands know each other and/or are particularly laid back . This gets tricky when headlining acts have combo amps or not enough cabs to go around . Then you have the added complication of a bands that is n't just drums/bass/gtr / vocals . Keyboards , Acoustic Guitars , mandolins , banjo 's , kazoos , brass sections , harps etc can bring on premature aging in a sound engineer if they are presented on the night with no prior warning . Start with the headlining act , What will they bring , what will they need , what will they share . Tell the next band down what is available to them , then ask them the same three questions . By the time you get to the bottom couple of bands , you should have all your shortages sorted . There may be drum kits coming from one band , cabs from others that only certain bands can use etc , but as long as you have it all written down , it should be fairly easy to keep track of . From this , you should be able to , with the help of your sound engineer , work out how long they need for sound checking , if they all need a sound check and then organise times and let the bands know . Sounds like a lot of work , and it is , but it will save you from some big time stress on the night .
+
+
+
+
+
+@highlight
+
+
+
+Organising gear requirements , gear sharing and sound check times is tricky .

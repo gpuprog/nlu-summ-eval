@@ -1,0 +1,5 @@
+Been using Cytomax for 5 years now & have been very satisfied ... until now . Tried Accelerade 4 years ago , but whey , a dairy product in Accelerade , caused stomach cramping , which was why I preferred Cytomax . Liked recent changes in formula , which made product more citrus tasting , less sweet , a common complaint among fellow cyclists who do n't use Cytomax . Well , that changed when the manufacturers decided to add ACS along with an amino acid peptide blend containing whey . For whatever reason , the product is much more sweet than the prior formula , perhaps to offset the dairy flavor imparted by the whey . Who knows ? <br /> <br /> I 'm considering trying something else and would encourage the manufacturer to go back to the previous formula . As I result , I 'm cancelling my Amazon order subscription , not to mention the CA sales tax now added to the cost of buying this product from Amazon .
+
+@highlight
+
+Dissatisfied with New ACS Additive

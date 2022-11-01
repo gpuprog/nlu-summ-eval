@@ -1,0 +1,5 @@
+I first fell in love with Stash's Wild Raspberry Herbal Tea on a recent trip to San Francisco. The little, european style hotel I stayed in offered this yummy tea 24-7 and I found myself stopping to grab a cup at least 3x a day. The tea has a strong, raspberry fruit flavor that is crisp enough to please your tongue and keep you hydrated, but without the keep-you-up-all-night caffeine. I instantly began craving the flavor.<br /><br />When I flew back to the east coast I was sad to realize that I couldn't find it in my local grocery store. I quickly hopped on Amazon and was happy to find that I can have the tea shipped to me. (YEA! Amazon!). Buying in the 100-count boxes is the cheapest option I've found, however, be warned that the 100-count box delivers the tea bags loose (they're in their separate, pink tea pouches, but loose in the box), which can be a cabinet disaster if you do not have a tea box or other place to keep the 100 tea bags under rule.<br /><br />The tea is great hot or cold over ice... you absolutely can't go wrong with this fruity tea!
+
+@highlight
+
+Yum-o! 5+ cups of this tea a day!

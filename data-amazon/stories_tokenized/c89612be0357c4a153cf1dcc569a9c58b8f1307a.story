@@ -1,0 +1,5 @@
+When I first got my Keurig brewing machine , I was a little skeptical about the quality of coffee any K-Cup could provide . After making a cup of Gloria Jean 's Hazelnut coffee using a K-Cup from a sample pack , I now stand corrected ! Gloria Jean 's makes great coffee to begin with and their Hazelnut coffee in K-Cup form is fantastic . <br /> <br /> The coffee gives off a wonderful Hazelnut aroma while it 's brewing and it tastes great ! It 's the kind of aroma and taste you 'd expect after grinding the beans yourself , but the K-Cup saves you the hassle . In the time that I 've owned a Keurig brewer , this is hands-down one of the best coffees I 've tried , and I 'll definitely be ordering it again . <br /> <br /> My only complaint is in the packaging , but since it does n't have anything to do with the quality of the coffee , I ca n't rate it less than five stars . Just wish this 50-pack came in a differently-sized/designed box so it would store more easily in a kitchen cabinet .
+
+@highlight
+
+Awesome Taste , Great Aroma !

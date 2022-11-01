@@ -1,0 +1,5 @@
+Is Wellness relatively expensive ? Yes . Is it worth every penny ? ABSOLUTELY , yes . <br /> <br /> As new cat owners , my husband and I wanted to make sure our two newly adopted cats would get the best care possible . After spending hours researching pet foods on the internet , I was completely shocked -LRB- and disgusted ! -RRB- to find out how terrible the cheap grocery store brands of food really are . It did n't take long for us to settle on Wellness because of its premium ingredients and stellar reputation . <br /> <br /> Thankfully , our cats LOVE this food . They 're happy , and we 're happy because it 's so good for them ! We gladly spend the extra money to ensure the health and well being of our two furry children . They love the turkey , chicken , and turkey/salmon varieties , which are all grain free . Turkey is their favorite , which is why I 'm posting the review here . :-RRB- <br /> <br /> If you want your cats to eat great food , try Wellness . We are SO glad we did !
+
+@highlight
+
+Completely worth the price .

@@ -1,0 +1,3 @@
+the title should be centered in the middle of the page instead of aligned with the left margin.you should also use title-case capitalization for your title , where you capitalize the first and last word , as well as all other important words .
+the title should be descriptive of your paper .
+if you have a sub-title , it should be set off with a semicolon , as in the example .

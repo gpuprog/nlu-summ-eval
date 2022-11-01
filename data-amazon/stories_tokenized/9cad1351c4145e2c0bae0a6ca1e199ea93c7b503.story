@@ -1,0 +1,5 @@
+After reading all the glowing reviews , I decided to take the plunge and get a case of the Mount Hagen Instant Decaf . My first cup was a weird experience ... was n't sure if I made it wrong or if it had gone stale . Opened another jar and it was the same ; weak , flavorless coffee , almost like drinking tea . The only things I liked about the coffee are that 1 -RRB- it 's organic and 2 -RRB- it has ZERO aftertaste or bitter finish . I tried doubling and tripling the amounts and then it just tasted like sludge . If you like a weaker coffee or are coming from old-school instant , then this would be a good choice . Even my wife -LRB- who is more of a tea drinker -RRB- commented on how smooth , but extremely bland this coffee is . <br /> <br /> I prefer a stronger cup of coffee -LRB- not darker ; my preference is a french-press medium roast from freshly ground beans -RRB- . I guess back to VIA it is . I despise most of Starbuck 's coffee , but VIA is surprisingly good .
+
+@highlight
+
+Disappointed after all the great reviews
